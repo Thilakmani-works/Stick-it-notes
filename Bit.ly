@@ -1,1 +1,1 @@
-Link:https://bit.ly/2Vyeye3
+https://bit.ly/stick-it-note
